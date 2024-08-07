@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **akshatsomvanshi18@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1n37AT4-yZB4Y2JG8CW0XLKnLDjmrvGlu/view](https://drive.google.com/file/d/1n37AT4-yZB4Y2JG8CW0XLKnLDjmrvGlu/view)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
