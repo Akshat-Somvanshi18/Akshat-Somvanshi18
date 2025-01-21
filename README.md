@@ -3,6 +3,7 @@
 
 - 📫 How to reach me **akshatsomvanshi18@gmail.com**
 
+![sde](https://github.com/user-attachments/assets/745a5586-2a9d-4142-b241-5f1354261899)
 
 
 <h3 align="left">Connect with me:</h3>
